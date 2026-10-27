@@ -1,0 +1,1 @@
+# Dělal jsem to sám pomocí ai
